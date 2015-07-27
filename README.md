@@ -1,0 +1,2 @@
+# dikey-perde
+Dikey Perde Sistemleri Genellikle ofis ve iş yerlerinde sıkça kullanılan perde sistemleridir. Diğer perdelerin aksine dikey olarak kesilmiş şeritler kumaş ve pvc’den üretilebilir. Dikey perdeler tamamı ithal malzemeden üretilerek kullanıcılara sunulmasına dikkat edilir. Ayrıca yapısı itibariyle eğimli alanlarda ve asimetrik pencerelerde de kullanıma uygundur.  http://www.pergoperde.com.tr/#!dikey-perde/
